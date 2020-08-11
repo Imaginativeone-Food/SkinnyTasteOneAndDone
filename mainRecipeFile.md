@@ -90,7 +90,10 @@
 		    - 2T Honey
 		    - 1T Unseasoned Rice Vinegar
 		    - 20 Chicken Wing Drumlets, 3 lbs, skinless
-		    
+		    - Olive Oil Spray
+		    - 1t Toasted Sesame Oil
+		    - 1 Scallion, chopped
+		    - 1t Sesame Seeds
 		- 06/23 Chicken, Pesto, and Cheese Stromboli 180
 		- 07/23 Nuggets Three Ways 183
 		- 08/23 Classic Chicken Nuggets 183
