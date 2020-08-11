@@ -80,6 +80,17 @@
 		- 03/23 Spicy Fried Chicken Sandwiches 175
 		- 04/23 Everything (but the) Bagel Chicken Roll-Ups 176
 		- 05/23 Glazed Korean BBQ Chicken Wings 179
+		  - Ingredients
+		    - Garlic cloves 3
+		    - 1 in piece of fresh ginger peeled
+		    - 1/4 C chopped onion
+		    - 4T Reduced sodium Soy Sauce
+		    - 1/4 Unsweetened Apple Sauce
+		    - 2T Gochujang
+		    - 2T Honey
+		    - 1T Unseasoned Rice Vinegar
+		    - 20 Chicken Wing Drumlets, 3 lbs, skinless
+		    
 		- 06/23 Chicken, Pesto, and Cheese Stromboli 180
 		- 07/23 Nuggets Three Ways 183
 		- 08/23 Classic Chicken Nuggets 183
